@@ -1,2 +1,0 @@
-# HarleenPrivacyPolicy
-Privacy Policy 
